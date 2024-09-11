@@ -1,1 +1,1 @@
-# chicken.the.sandwich.also.idk.bye.zombs.royal.github.io
+# chicken.the.sandwich.also.idk.bye.zombs.royale.github.io
